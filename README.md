@@ -1,5 +1,5 @@
 👋 Hey there! I'm Nino Chun
-<br>💬Twitter:https://x.com/ni92057937<br>
+
 <br>😎Hobby:<br>🏀  🛹  🎸
 <br>🥊 2018 Teenager Athlete 54KG  Provincial Champion 🏆 (Retired)
  <br>
