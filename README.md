@@ -1,4 +1,4 @@
-👋 Hey there! I'm Nino Chun
+👋 Hey there! I'm Ni Chunwang
 
 <br>😎Hobby:<br>🏀  🛹  🎸
 <br>🥊 2018 Teenager Athlete 54KG  Provincial Champion 🏆 (Retired)
