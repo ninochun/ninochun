@@ -8,7 +8,7 @@
 🚀 Computer Science,Finance Student @ Shanghai Maritime University <br>
 💡 Passionate about AI, Machine Learning, and Full-Stack Development<br>
 👨‍💻 Skilled in Python, Golang,Java, C++, and more<br>
-⚡ Building AI-powered applications, optimization models, and rescearch Side-Channel attack<br>
+⚡ Building AI-powered applications, optimization models<br>
 <br>
 🔥 What I Do<br>
 🤖 AI/ML Enthusiast – NLP,LLM System Protection, Computer Vision, Reinforcement Learning<br>
